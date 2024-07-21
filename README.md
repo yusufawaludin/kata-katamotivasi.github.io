@@ -1,0 +1,1 @@
+# kata-katamotivasi.github.io
